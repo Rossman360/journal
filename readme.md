@@ -9,7 +9,7 @@ I still have thoughts about how to improve this journal, but maybe not yet the m
 
     -IX.XIII-
 
-I've decided to just start one master journal file. Today I slept until 12:30, probably because I was up late designing keyboards. Erica will be returning tomorrow, and I think I am excited about that, 
+I've decided to just start one master journal file. Today I slept until 12:30, probably because I was up late designing keyboards. Erica will be returning tomorrow, and I think I am excited about that,  
 but I can tell life is about to be very different. Fall is coming. I am healing. I have a lot of gigs in October, and I plan to spend less time at the bar. I think I really wanted to find someone to
 love while the summer was still around, but now I can accept that that may not be happening, and I am very much remembering how to love myself. My daily phone activities are really starting to take a
 long time. I remember when I was writing in my journal three years ago, it was: "I woke, made coffee, played wordle, scrolled on my phone and got to work." Since then, I have added daily and regular
