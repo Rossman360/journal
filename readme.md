@@ -1,4 +1,4 @@
-VIII.IXXX.XXIII-
+	-VIII.IXXX.XXIII-
 
 So much rain this morning. I was blissed out every time I woke up, especially to see that it was consistently earlier than I expected. I made coffee, swiped on the dating apps, messaged with the two
 girls I had been talking to before bed and just lazed around. I made a second coffee and started watching Eminem videos on youtube, basically his most violent stuff.
