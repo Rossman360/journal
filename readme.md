@@ -25,7 +25,9 @@ the one that made her ask if I was feeling depressed.
   
 I set this journal to be backed up on github, messed with the markdown formatting practices and stole Juan's queen. I think it's nearly time for some more coffee. Then I changed my journal macro so that
 it changes into the journal directory and edits the file. That way, I'll already be in the correct location for adding, commiting and pushing to github.
-  . . .  
+
+. . .  
+
 I drove to Foundry, ordered a burger and set up my drums. The burger (always something strange there,) came in a bowl. We played a fun set with appearances by Max, Trey and Nex. I drank two-and-a-half
 Domingas and then drove to the Brew Pump for a gose. Travis and Brody were both being very weird. Lamont was out front and I found it preferable to hang with him. They stayed open til 11, so I had plenty
 of time to savor my beverage. Then, I drove Erica's truck home, brushed my teeth, walked to the Country Club and hung out with Kate, Fiona, Sarah, Kevin and my new PI friend John. I told him I would make
