@@ -25,3 +25,16 @@ the one that made her ask if I was feeling depressed.
   
 I set this journal to be backed up on github, messed with the markdown formatting practices and stole Juan's queen. I think it's nearly time for some more coffee. Then I changed my journal macro so that
 it changes into the journal directory and edits the file. That way, I'll already be in the correct location for adding, commiting and pushing to github.
+  . . .  
+I drove to Foundry, ordered a burger and set up my drums. The burger (always something strange there,) came in a bowl. We played a fun set with appearances by Max, Trey and Nex. I drank two-and-a-half
+Domingas and then drove to the Brew Pump for a gose. Travis and Brody were both being very weird. Lamont was out front and I found it preferable to hang with him. They stayed open til 11, so I had plenty
+of time to savor my beverage. Then, I drove Erica's truck home, brushed my teeth, walked to the Country Club and hung out with Kate, Fiona, Sarah, Kevin and my new PI friend John. I told him I would make
+a good detective and even cracked one of his cases re Elliott Moss. Kate was being very friendly. I would have hung out with her as long as possible, but I had to go meet Kathryn, who was hanging out with
+Jennifer, who's name I blanked on for a very awkward few moments. Once the bar closed, I walked home, drank two more porters, smoked weed and watched music videos. I'm not sure how this favored pasttime
+of mine will work with Erica being back in the house.
+
+	-IX.XIV-
+
+I woke somewhat hungover and didn't do anything for a long time. I was farting up a storm but in a very good mood. I made some iced coffee, cleaned both fridges and took out the trash etc. before walking
+to the market for coffee and Ingles for floss, a comb, paper towels, pineapple slices, ramen, grape juice and bologna. I even saw Chuck for the first time in like five years. I walked home, put my groceries
+away and wrote in my journal.
