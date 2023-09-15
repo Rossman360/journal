@@ -40,3 +40,35 @@ of mine will work with Erica being back in the house.
 I woke somewhat hungover and didn't do anything for a long time. I was farting up a storm but in a very good mood. I made some iced coffee, cleaned both fridges and took out the trash etc. before walking
 to the market for coffee and Ingles for floss, a comb, paper towels, pineapple slices, ramen, grape juice and bologna. I even saw Chuck for the first time in like five years. I walked home, put my groceries
 away and wrote in my journal.
+
+. . .
+
+It took me an hour and 10 minutes to get down Brevard Rd to the airport, but Erica's plane had been forced to sit on the tarmac for just as long. I went to the bar at the gas station there and sat with some
+people who were also waiting to pick up friends from Charlotte. Apparently the restrooms were closed at the gas station and the terminal alike, so things were getting a little chaotic, not to mention the
+amount of traffic. Apparently they were waiting because five airplanes had landed at once, and there are only four terminals. I messaged Bakingpy, curious to whether Keebio  would like to stock Rebound Rev 5.
+We drove home, smoked some weed from Belgium and talked about keyboards while I played YouTube videos and farted around on Discord. I went to bed fairly early but kept waking up to drink juice. 
+I remember at one of those times that it was 4:00AM.
+
+	-IX.XV-
+
+I had been having vivid dreams about being in an open-air play directed by Will Ferrell, but there was much sabatoge and mystery in the way things unfolded. I slept til 1PM and woke overwhelmed by the amount
+of texts on my phone. I went downstairs, made coffee, came back up, opened Wordle on my computer, struggled with it, wrote in my journal and asked Bakingpy what the contract details would be, if any.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
