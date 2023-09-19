@@ -54,6 +54,34 @@ I remember at one of those times that it was 4:00AM.
 I had been having vivid dreams about being in an open-air play directed by Will Ferrell, but there was much sabatoge and mystery in the way things unfolded. I slept til 1PM and woke overwhelmed by the amount
 of texts on my phone. I went downstairs, made coffee, came back up, opened Wordle on my computer, struggled with it, wrote in my journal and asked Bakingpy what the contract details would be, if any.
 
+. . .
+
+Francis came over and we talked with Erica about the possibility of him moving in. It kinda doesn't seem
+ like it's going to work unless he downsizes a lot of stuff and finds ways to not need so much validation
+from us. We went to the Brew Pump after that and had a nice time. Francis eventually went home. Erica went
+to UJ for a burger, and I met up with Lucy. She bought two IPA six packs and a 12er of Topo Chicos. We rode
+drunkenly to her house and stayed up all night drinking and listening to music/jamming along with it.
+
+	-IX.XVI-
+
+I woke and poured a Topo Chico over ice, followed by another. I was supposed to have a date at 2PM in Asheville
+but really wanted to back out of it. We lolly gagged around Lucy's house for a while and then drove to mine.
+"Do you want me to tuck you in?" she said. I did. In actuality, we hung out with Erica in the back yard while I
+drank coffee and they tried to play flutes. I remembered I had most of an Oatmeal Porter, and so shared it with
+her. My date backed out, and I eventually walked up to the dispensary with Erica to play a gig with Ryan. I was
+not playing very well, to be honest, probably because I was drunk. Fursty didn't seem to be in the most focused
+mood either, probably because he's going to be a father any day now. He gave us a ride home and I basically went 
+straight to bed. Yes, it was lights out by 7PM, but I kept waking up and drinking juice until about 4AM.
+
+	-IX.XVII-
+
+I'm not sure what I did with my morning, but eventually I drove to a house party in deep Swanannoa where
+Dulci, Charlie and I played a couple hours of very fun music. I was the last one there, quietly enjoying
+a beer by the fire. The owners finally calmed down from party mode, sat with me and discussed all things
+spiritual/Christian. I drove home after that, smoked weed with Erica in the basement and won like five
+games of chess on my phone.
+
+
 	-IX.XVIII-
 
 I was sleeping hard til 11 but very much wanted to talk downtown. It was definitely the coldest morning
