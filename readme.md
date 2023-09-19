@@ -3,11 +3,11 @@
 So much rain this morning. I was blissed out every time I woke up, especially to see that it was consistently earlier than I expected. I made coffee, swiped on the dating apps, messaged with the two
 girls I had been talking to before bed and just lazed around. I made a second coffee and started watching Eminem videos on youtube, basically his most violent stuff.
 
-    -IX.V-
+	-IX.V-
 
 I still have thoughts about how to improve this journal, but maybe not yet the motivation to implement them. Namely, I want to be able to finish writing about the day before, but on the day after. 
 
-    -IX.XIII-
+	-IX.XIII-
 
 I've decided to just start one master journal file. Today I slept until 12:30, probably because I was up late designing keyboards. Erica will be returning tomorrow, and I think I am excited about that,
 but I can tell life is about to be very different. Fall is coming. I am healing. I have a lot of gigs in October, and I plan to spend less time at the bar. I think I really wanted to find someone to
@@ -100,7 +100,10 @@ headed home and basically just shut down. I definitely wasn't able to sleep very
 hung out on my phone and not on my phone until at least 2AM. 
 
 
+	-IX.XIX-
 
+I slept til 11, played Wordle, made coffee, wrote in my journal, got caught up on Discord, made more
+coffee and wrote in my journal some more.
 
 
 
