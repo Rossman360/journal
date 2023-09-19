@@ -103,7 +103,8 @@ hung out on my phone and not on my phone until at least 2AM.
 	-IX.XIX-
 
 I slept til 11, played Wordle, made coffee, wrote in my journal, got caught up on Discord, made more
-coffee and wrote in my journal some more.
+coffee and wrote in my journal some more. I did some Hinge swiping, got JLC quotes for Madeline at 50 & 100x, made some Drashna-
+requested updates to Palmetto, deleted a bunch of emails, did my chess puzzles, finished my coffee and wrote in my journal.
 
 
 
