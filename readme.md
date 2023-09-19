@@ -54,6 +54,22 @@ I remember at one of those times that it was 4:00AM.
 I had been having vivid dreams about being in an open-air play directed by Will Ferrell, but there was much sabatoge and mystery in the way things unfolded. I slept til 1PM and woke overwhelmed by the amount
 of texts on my phone. I went downstairs, made coffee, came back up, opened Wordle on my computer, struggled with it, wrote in my journal and asked Bakingpy what the contract details would be, if any.
 
+	-IX.XVIII-
+
+I was sleeping hard til 11 but very much wanted to talk downtown. It was definitely the coldest morning
+in many months. I decided to just leave the house and head straight for Battle Cat, where I drank most
+of a shot of espresso. I continued downtown and started to feel awake after I had crossed the bridge.
+I sat at my secret spot below Little Bee for a moment, went to the bank, deposited $50 and then made my
+way to the Asheville Club (having a quick chat with Mad Mike along the way.) There, I had a Guinness +
+espresso and decided to go about my day.
+
+I walked back to the west side and decided to pee at the Country
+Club. I couldn't resist drinking half a margarita sour in the sun after that. I made my way toward
+the house and passed Erica in the church lot on her way to get her hair cut. I went home, grabbed
+my chess board and my weed and then walked to the Brew Pump. I set up the chess board and had a 
+couple beers with grant, but never found an opponent. Once the sun started going down, I got chilly,
+headed home and basically just shut down. I definitely wasn't able to sleep very easily, but I just
+hung out on my phone and not on my phone until at least 2AM. 
 
 
 
