@@ -106,10 +106,16 @@ I slept til 11, played Wordle, made coffee, wrote in my journal, got caught up o
 coffee and wrote in my journal some more. I did some Hinge swiping, got JLC quotes for Madeline at 50 & 100x, made some Drashna-
 requested updates to Palmetto, deleted a bunch of emails, did my chess puzzles, finished my coffee and wrote in my journal.
 
+. . .
 
+I went to the Brew Pump for one People's Porter and then down to Blob rehearsal with Jackson filling in on Tele, which was very fun.
+It was cold on the walk home. I made some noodles, won one game of chess in bed and fell asleep at a reasonable hour.
 
+	-IX.XX-
 
-
+I was worried about Erica. Her basement door was open and I hadn't heard any sign of her by 10AM.
+By 11:30 though, I finally heard the shower running. I made some coffee, played Wordle (Snare in six,) scrolled on the dating
+apps, looked at  social media and listened to Shabang, or, watched all the videos, technically.
 
 
 
