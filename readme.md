@@ -138,3 +138,7 @@ I was very tired from moving. I had coffee etc. and decided to tinker around wit
 row when I realized how truly warped the PCB was. I decided I would make use of the switchplate Travis had sent me, so I desoldered the
 whole board and made use of some three-pin Box Browns Erica had in the basement. I still need to order an o-ring and maybe figure out
 some gaskets, but, after modifying the keymap a bit and changing to SA Filco Navy, I am having quite a nice time typing on this keyboard.
+
+I was typing about this in the terminal and just figured I would switch to the journal since it is fairly relevant and coherant.
+I just added four tiny pieces of foam to the north and south side of the Palmetto PCB, which has created a better typing sound, prevents any keys
+from scraping, and keeps the PCB inside the case when turned upside down. It's always amazing what a little dampening can do.
