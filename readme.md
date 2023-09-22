@@ -117,12 +117,24 @@ I was worried about Erica. Her basement door was open and I hadn't heard any sig
 By 11:30 though, I finally heard the shower running. I made some coffee, played Wordle (Snare in six,) scrolled on the dating
 apps, looked at  social media and listened to Shabang, or, watched all the videos, technically.
 
+. . .
 
+I mainly relaxed, made some ramen until Kevin reconfirmed that he would be able to give me a ride to Scott McMicken rehearsal,
+at which point I walked up to the Pump and had a half porter. We had the best, most surreal hang at Scott's house. I already 
+feel like we are friends. The music was great and we definitely bonded over grapes and purple drinks. I was expecting to run
+through material from Shabang, but he ended up showing us some rough ideas he was working on, and we had a very natural way of
+working together under his thoughtful leadership. Kevin drove me home and I went straight to bed.
 
+	-IX.XXI-
 
+Woke, drank coffee, did all the things and contacted Gary around noon, who was more than happy to pick me up and in the neighborhood.
+We had lunch at Botiwalla and then headed to his house and loaded up his trailer. We took a load to his new place, unloaded it,
+got some essentials from Ingles and then packed a bit more with Ryan and Melissa around. We ate pizza and took another load to his new
+place, after which I went home and straight to bed again.
 
+	-IX.XXII-
 
-
-
-
-
+I was very tired from moving. I had coffee etc. and decided to tinker around with my Palmetto build. I was going to change out the bottom
+row when I realized how truly warped the PCB was. I decided I would make use of the switchplate Travis had sent me, so I desoldered the
+whole board and made use of some three-pin Box Browns Erica had in the basement. I still need to order an o-ring and maybe figure out
+some gaskets, but, after modifying the keymap a bit and changing to SA Filco Navy, I am having quite a nice time typing on this keyboard.
