@@ -154,3 +154,8 @@ who seems pretty into me. Ah man, I'm not even gonna be able to push this journa
 
 I fixed SSH for github and even for bluehost. I smoked a bowl with Erica and placed the diodes for Rebound 5, then routed all the rows
 and columns.
+
+	-IX.XXIII-
+
+Woke around 8:30, made coffee and learned about/set up SSHFS. Now my bluehost server is essentially just a folder on my computer.
+I did my chess and Wordle and pruned some QMK branches as well.
