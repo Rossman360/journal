@@ -142,3 +142,15 @@ some gaskets, but, after modifying the keymap a bit and changing to SA Filco Nav
 I was typing about this in the terminal and just figured I would switch to the journal since it is fairly relevant and coherant.
 I just added four tiny pieces of foam to the north and south side of the Palmetto PCB, which has created a better typing sound, prevents any keys
 from scraping, and keeps the PCB inside the case when turned upside down. It's always amazing what a little dampening can do.
+
+I spent most of the night struggling with SSH PHP and a short in the keyboard. I never could get bluehost to stop complaining
+about to many failed login attemps. I finally got PHP working after much fooling. The reason I was trying to do this stuff is that
+Lucy called and said she wanted to get next week and have me make her a website in exchange for massage+weed. I should have tried
+to tackle the fact that my keyboard was shorting out first, but I thought it was a problem with tap code delay because it was only
+happening when I held down spacebar to use my mods. It turns out that's actually when I was just hitting the keyboard the hardest, and so I was
+probably pushing the PCB into the bottom of the case. In addition to all this, I deleted my github SSH key, so now I can't even push changes. I was feeling
+pretty frantic so I decided to close all my tabs and restart my computer. Oh, I've also been meaning to respond to Alison on Hinge,
+who seems pretty into me. Ah man, I'm not even gonna be able to push this journal entry. Which item do I tackle first? Alison!
+
+I fixed SSH for github and even for bluehost. I smoked a bowl with Erica and placed the diodes for Rebound 5, then routed all the rows
+and columns.
