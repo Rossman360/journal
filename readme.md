@@ -159,3 +159,18 @@ and columns.
 
 Woke around 8:30, made coffee and learned about/set up SSHFS. Now my bluehost server is essentially just a folder on my computer.
 I did my chess and Wordle and pruned some QMK branches as well.
+
+. . .
+
+A very scattered Lucy picked me up around 10:45. We got an oil change in her car, then ate at the Waffle House in Canton.
+We went to her house for about half an hour while she changed clothes, etc., and then drove to Box Turtle. We helped move
+with Galen and Rachel, and eventually Jamie. We took two trailer loads to the new house and then all went out to eat at
+The Madness, and were joined by Darwin and Zelda as well. Lucy and I were very tired after that, so we drove to her house
+and watched silly videos on her phone until we fell asleep.
+
+	-IX.XXIV-
+
+Woke, drove to my house and had coffee with Lucy. I started putting together a personal discography, made some noodles and
+then worked on Rebound Rev 5, mainly importing 3D models and fixing mounting hole areas. I also imported the MCU. I think
+my next step will be to mirror the diodes and pins on the right side so that the board is more symmetrical. Currently I'm
+stalling by doing laundry and writing in my journal.
