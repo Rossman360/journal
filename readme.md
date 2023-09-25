@@ -174,3 +174,6 @@ Woke, drove to my house and had coffee with Lucy. I started putting together a p
 then worked on Rebound Rev 5, mainly importing 3D models and fixing mounting hole areas. I also imported the MCU. I think
 my next step will be to mirror the diodes and pins on the right side so that the board is more symmetrical. Currently I'm
 stalling by doing laundry and writing in my journal.
+
+I did mirror the diodes, made more noodles and rerouted everything including the path for rows and cols to the MCU. I also
+made my bed, folded all my laundry, swept the floor took a bath and drank some water.
