@@ -176,4 +176,33 @@ my next step will be to mirror the diodes and pins on the right side so that the
 stalling by doing laundry and writing in my journal.
 
 I did mirror the diodes, made more noodles and rerouted everything including the path for rows and cols to the MCU. I also
-made my bed, folded all my laundry, swept the floor took a bath and drank some water.
+made my bed, folded all my laundry, swept the floor, took a bath and drank some water.
+
+	-IX.XXV-
+
+I woke and made coffee etc. I had slept very solidly through the night, freakishly so. It could have been because my phone was on silent
+and messages was not open on my computer. It could have been the clean bed sheets, or the very light diet. Lucy came over 
+and we started on her website, eventually went to Pizza Mind, and then Kevin's house to let out the Hymanberg dogs because
+little Max was born today. We went back to my house, worked a little more, until rush hour when Lucy decided to leave. The
+website is simple but good. I laid in bed for a bit and then made some too-late coffee and worked on Rebound Rev 5, connecting
+the rows, columns and encoder to the MCU, and fixing the edge-related problems. I also routed the bottom row.
+
+My computer has been getting slower and slower, a problem which I attribute to the hard disk, so I decided I would try installing
+a fresh version of Linux Mint onto a USB. I played with that for a bit and realized that running a bootable disk and installing
+a copy are not really the same thing, so I'm currently writing another boot disk so that I can hopefully install to the first
+one while writing in my journal. I also replaced the SA Filco Navy keycaps on my Palmetto with GMK Classic Blue, so now I'm typing on
+nearly $700 worth of keyboard while eating ramen, and using all Carolina Mech products to boot.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
