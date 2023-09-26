@@ -193,6 +193,18 @@ a copy are not really the same thing, so I'm currently writing another boot disk
 one while writing in my journal. I also replaced the SA Filco Navy keycaps on my Palmetto with GMK Classic Blue, so now I'm typing on
 nearly $700 worth of keyboard while eating ramen, and using all Carolina Mech products to boot.
 
+. . .
+
+I installed Chrome and KiCad easily. The iMac's hard disk mounted automatically, so I just dragged my SSH keys and scripts into the new OS.
+I was then able to clone my keyboard design repository and noticed that KiCad was opening and running much faster. That's when I 
+realized the pins on my USB port weren't labelled correctly, so, after being unable to copy and paste an HRO-type symbol, I just edited
+the symbol I had to match in terms of pin names. I routed D+ and D- minus after that, felt tired and went to sleep.
+
+	-IX.XXVI-
+
+Woke at 9:17, went downstairs, made coffee, talked with Erica about installing OSes and old macbooks, made a second cup, came upstairs,
+cloned my journal onto the new OS and wrote in it. I played Wordle, installed QMK and then routed VBUS and the 5.1K resistors on Rebound
+Rev 5.
 
 
 
