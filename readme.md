@@ -206,7 +206,21 @@ Woke at 9:17, went downstairs, made coffee, talked with Erica about installing O
 cloned my journal onto the new OS and wrote in it. I played Wordle, installed QMK and then routed VBUS and the 5.1K resistors on Rebound
 Rev 5.
 
+. . .
 
+I realized it was almost time to go to practice, so I made some bologna ramen, scarfed it down and hopped in the car with Kev. We went to
+pick up Steve Okonski in Biltmore Village and then rode to Scott's house where we hung on the deck, played some great tunes, took a walk
+in the woods, played some more tunes and said our goodbyes. We took Steve home and showed up 20 minutes late to Dulci practice. Kev was
+munching on a bag of tortilla chips, and I grabbed some handfuls as well. Jackson is sounding really good for only two rehearsals, and I
+jealously would like to play with him more often. It was a long practice, but went by very fast. I walked home to Erica, Brody and Mark starting
+a game of Chinese checkers. I took a PBR tallboy out of the fridge without asking, packed some of Mark's weed in my pipe and came in second
+place. I was tired and starving. I laid down in the living room while Mark ran his mouth. Erica basically eventually told him it was time to leave,
+at which point I cooked some random noodles with parmejean and dill relish. I ate that and fell fast asleep.
+
+	-IX.XXVII-
+
+I woke, looked at Instagram, watched a 311 video, hopped on Reddit for a minute, played Wordle and eventually made some coffee. I talked with
+Erica for a minute about the previous night's adventures and then came upstairs and wrote in my journal.
 
 
 
