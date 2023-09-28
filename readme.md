@@ -222,6 +222,22 @@ at which point I cooked some random noodles with parmejean and dill relish. I at
 I woke, looked at Instagram, watched a 311 video, hopped on Reddit for a minute, played Wordle and eventually made some coffee. I talked with
 Erica for a minute about the previous night's adventures and then came upstairs and wrote in my journal.
 
+. . .
+
+She went to the grocery store and I made more coffee. I eventually took a bath, and then used the truck to drive to Foundry.
+I loaded in my drums, ate a burger and played a very fun set to -- for most of the night -- nobody but the bartender and her 
+high school friend Nicole, who works at Battery Park Book Exchange. They admitted they were old HGTR fans, and in fact part
+of the team that won a high school lip synch competition with Getting Over Your Love.
+
+I ended up having two more beers after the set for some reason. I guess I was enjoying talking to the guy from Ohio. I 
+was going to go to Ingles with my $7 in tips, but somehow ended up at the Brew Pump instead. I drank a gose, talked to
+Miles and Nick and Jamie, drove home and smoked weed with Erica while subjecting her to Scot McMicken demos over her
+bluetooth speakers. When I walked upstairs at 1AM, I went straight to sleep.
+
+	-IX.XVIII-
+
+Woke, looked at Facebook and Instagram, played Wordle, made coffee and wrote in my journal.
+
 
 
 
