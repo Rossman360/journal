@@ -236,8 +236,24 @@ bluetooth speakers. When I walked upstairs at 1AM, I went straight to sleep.
 
 	-IX.XVIII-
 
-Woke, looked at Facebook and Instagram, played Wordle, made coffee and wrote in my journal.
+Woke, looked at Facebook and Instagram, played Wordle, made coffee and wrote in my journal. I worked on Rebound Rev 5 and
+walked to Ingles with $2 in my wallet, which got me two packs of ramen and a can of chili, so I made that when I got
+home and realized it was literally spaghetti. I ate that and wrote in my journal.
 
+. . .
+
+Instead of outright cancelling my date, I informed Alison that I had literally $2 in my wallet. She said that was fine,
+she understood and would buy me a drink, and also wanted to go to Cascade. I walked down there at 5 and had a very nice,
+casual two caliente margaritas with her. She was as attractive as I had hoped she would be, and seemed less anxious than
+she led me to believe. I walked to Ingles in a slight drizzle, bought one more pack of ramen thanks to the two dimes I
+had found there earlier, walked home and added Cirque breakouts to Rebound. I smoked some weed, too. I don't remember 
+what else I did, but I was tired and it was soon 11:00, and so I went to sleep.
+
+	-IX.XXIX-
+
+My alarm was set for 9AM and it felt like that had come and gone, but it was truly taking forever. Someone was outside
+smacking a hammer so timidly. I really hope it was the teenager. Once my alarm went off, I got up, made coffee, chatted
+with Erica, played Wordle (Azure in two,) browsed discord and wrote in my journal.
 
 
 
