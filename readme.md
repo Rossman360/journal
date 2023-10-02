@@ -255,6 +255,63 @@ My alarm was set for 9AM and it felt like that had come and gone, but it was tru
 smacking a hammer so timidly. I really hope it was the teenager. Once my alarm went off, I got up, made coffee, chatted
 with Erica, played Wordle (Azure in two,) browsed discord and wrote in my journal.
 
+. . .
+
+Kev and I drove to Starbucks and then Scott's house, where we worked on Ordinary Guy and a Calypso-type idea. It was
+very fun to play and hang as a three-piece. I came home, made some spaghetti, and then rode with Kev and Alyse to 
+Charlie's house where we had a final rehearsal in the backyard with Jackson. There was Guinness, frozen mimosas,
+very strong margaritas in a can. I came home at 10:30 and went promptly to bed.
+
+	-IX.XXX.-
+
+I woke a little before 8, made some coffee, moved my drums out to the porch, played Wordle and waited for Jackson. 
+We rode together and chatted all the way to Red Oak, which was indeed massive and swamped with people. I ate a 
+brat, drank a bunch of bachs and played a loud and fun set. I was tired on the way home. Jackson still did a lot
+of talking. I ate a bag of jalapino cheddar Cheetos, a slice of sausage gas station pizza, a carton of grapes 
+and a coffee. I was home by 8:45. Erica was out and I went straight to bed.
+
+	-X.I-
+
+I think I had had weird dreams with Cait; I woke up thinking about her and feeling lonely. I swiped on Bumble,
+found the literal girl of my dreams, and then accidentally swiped left while trying to look at her Instagram.
+It seemed like she was friends with Lizzy Ross, so I spent a while trying to find her through both of her
+social media accounts. I couldn't remember her name, only that she went to UNC and was from Pittsboro. I fell
+back asleep and awoke feeling refreshed, not bothered by either inconvenience.
+
+My tentative plans were to go to Walgreens for the sake of adding cash to my PayPal, and then Aldi, but I didn't
+want to do anything. I thought about just going to Ingles but decided against it. I fell back asleep, and then
+woke to the notion that I was starting to have weird dreams again. I was starting to feel as annoyed as before.
+My phone buzzed saying I had a message from Lyndsay on Bumble. When I opened it, it was from Lyndsay Pruett. We
+came to the conclusion that we would like to hang out with each other whenever she got home from tour.
+
+I walked down to Cascade to watch Krave Amiko. They were stylistically a little dated and definitely over-
+performative, but also crushing it most of the time. I drank a Guinness and felt readyish to leave. I wanted to
+see what the next band was about, as well, so I was feeling indecisive. I went into the bar for another drink, and
+then, after a couple minutes, decided I would leave. I was standing around talking to Pam when she offered to give
+me a brat for free, so I sat and ate that with her, and then wandered to the back again to see what the music was
+like. Acklen Walker was rapping my feelings, and a tall skinny shaved-headed drummer was playing just what I would
+have played.
+
+Once he did an all-singing song, however, I decided to walk up the hill. My exchange with Lyndsay got increasingly
+flirty. I went home, put on more clothes, brushed my teeth and drove Erica's truck to South Slope. We checked out
+the new Tiki Easy in the back of Hi-wire and were underwhelmed, so we decided to go next door to Ben's Tune up,
+where we had heard the sound of reggae. We had two drinks there (her Old Crow and me Dominga,) and then kissed in
+the parking lot. She was going home because she had to teach from noon to five, then play a gig with Cynthia. I 
+drove home and laid in bed. She texted first, and we eventually said goodnight.
+
+	-X.II-
+
+I woke, played Wordle, walked to Battle Cat, had an Americano, went to SECU downtown, then to the Asheville Club
+for a Guinness. I meditated in the park for a few minutes and then walked back to the West Side. I saw Scott's car
+parked near Battle Cat and correctly assumed he was there. He was outside talking to Greg about their upcoming 
+Double Crown show. I said hello to both of them and then went to Ingles where I bought soy ramen x2, a big pack of
+super thick-cut bologna, some arugula, a can of pineapple slices and a bottle of muscadine grape juice for $13.56.
+I went home, made food, made coffee, smoked weed with Erica and spaced out while she talked about Cornhole, Frank's
+bone cancer, robins, squirrels, flutes, chipmunks, Emacs, QMK userspaces, key combos, getting rid of stuff, Francis
+living with Drew, how shady Retrocade is and more. I eventually had to come upstairs for some quiet time and to write
+in my journal.
+
+
 
 
 
