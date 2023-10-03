@@ -311,13 +311,18 @@ bone cancer, robins, squirrels, flutes, chipmunks, Emacs, QMK userspaces, key co
 living with Drew, how shady Retrocade is and more. I eventually had to come upstairs for some quiet time and to write
 in my journal.
 
+I walked to Aldi, bought more ramen, more greens, more muscadine, some bananas and a mint chocolate bar for $12.26.
+I went to the Brew Pump after that, had one gose with Fuckchop, Adam, Adam, Brodie, Bryan and Rob.
 
+. . . (Seems like some journal went missing?)
 
+I went home, took a bath, did all kinds of random cleanup on Rebound and went to bed fairly early.
 
+	-X.III-
 
-
-
-
-
-
-
+I woke at 9, made coffee, rode with Kevin to Scott's house, worked on three or four tunes, went back to the west side,
+got dropped off on Haywood Rd., had a free gose at the pump with Brodie, Travis and Michel, walked home, made food,
+talked to Erica, laid in bed, listened to the Scott tunes and wrote in my journal. I was hoping to go see Lyndsay
+play at Five Walnut, but she indicated that she was very very tired, so I backed out, which she said she appreciated.
+It does make me wonder, but it's definitely not worth over-wondering. I'm just not sure what I'm going to do with my evening.
+Spending money on food sounds fun, but saving money and saying home seems much more wise.
