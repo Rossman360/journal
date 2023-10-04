@@ -326,3 +326,19 @@ talked to Erica, laid in bed, listened to the Scott tunes and wrote in my journa
 play at Five Walnut, but she indicated that she was very very tired, so I backed out, which she said she appreciated.
 It does make me wonder, but it's definitely not worth over-wondering. I'm just not sure what I'm going to do with my evening.
 Spending money on food sounds fun, but saving money and saying home seems much more wise.
+
+. . .
+
+And stay home I did. I got my SSH and SSHFS working under my new operating system. I never fully understood what the
+error was, nor the solution, but a bit of brute force copypasta and trying everything seemed to work eventually.
+I laid in bed for a while and then decided to title all of the Scott memos, convert them to mp3 and host them on
+my bluehost server. Before that, I looked at the Sea Picro reset circuit, noticed it was complicated and went to
+lay in the bed. 
+
+	-X.IV-
+
+I woke up at 930 after long intense dreams of seemingly remembering I had helped Sunny bury a body. I also posted up
+printed labels with QR codes that would load songs for somebody as they were leaving our complex. I played Wordle,
+swiped on the dating apps, checked social media, Discord, got up, went downstairs, made coffee, laid in the hammock
+and felt totally blissed out. My life may not be this way forever, but everything is good right now. I made a second
+cup of coffee, reviewed my browser history and wrote in my journal.
