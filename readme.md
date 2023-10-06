@@ -342,3 +342,30 @@ printed labels with QR codes that would load songs for somebody as they were lea
 swiped on the dating apps, checked social media, Discord, got up, went downstairs, made coffee, laid in the hammock
 and felt totally blissed out. My life may not be this way forever, but everything is good right now. I made a second
 cup of coffee, reviewed my browser history and wrote in my journal.
+
+. . .
+
+I had a porter at the Brew Pump and then walked down to Kevin's house to make a High Like Rainbows theme with
+Fwuit for David the Windowman. It really only took us about a half-hour to get a suitable demo. The rest of the
+hang gave me anxiety. I was literally just sitting on the front porch with Kevin and Dulci, but it seemed like 
+there wasn't anything to talk about, particularly with Dulci. Though, admittedly, I was the most silent one. We
+had a productive rehearsal after that with lots of snacks. I walked home, passing Ryan along the way, and fell 
+quickly asleep.
+
+	-X.V-
+
+I'm realizing now that my quality of sleep has been a lot better recently. When I first moved into Erica's, I was
+waking up very often, and then every couple hours. Now, it seems like once I fall asleep, I stay asleep until the
+sun is up, at least. This morning I made coffee, played Wordle and rode with Kevin to Scott's house. They were
+chopping up brush piles in a chipper for most of the rehearsal, but we managed to record nine memos. We ordered
+lunch from Taqueria Fast and I was the weirdo with the torta. We ate inside the house and all the questions seemed
+to be aimed at Steve. Maybe people just know I'm a simple guy without a lot of lore.
+
+As we were leaving Scott's, I caught myself letting out a big sigh and realized I had been more anxious than
+I realized for most of the day. I had Kev let me off at the Country Club, but it was later than I realized. The
+sun was up and the people there were drunk. I did not want to hang out for a second, so after using the bathroom,
+I walked home, laid in bed, converted the memos to mp4, hosted them on my web server, listened to them all, laid
+in the bed again, swiped on dating apps, drank some juice, ate a banana and wrote in my journal. I think I am feel-
+ing better, more self-assured now. I'm just ready for some proper alone time. My walk on Monday was very nice, but
+it was followed by an early-morning rehearsal, a canceled date, the jingle writing and two more rehearsals. I now
+have a quiet night at home, a whole day off, and then the better part of the next day to relax.
