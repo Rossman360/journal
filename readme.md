@@ -449,7 +449,40 @@ without music at least, which is rare. I drank coffee with Erica and listened to
 upstairs to use the restroom and was quickly followed and interviewed about Shopify. When I sat at my computer
 to write in my journal, I was asked more questions until I pretended to be poking around on Discord. 
 
+. . .
 
+I walked to the Brew Pump around five, but there was a sign saying they wouldn't be open until six. I bought a 
+six-pack of Mountain Water to share with Charlie for his birthday and then walked down Vance Crescent. As I
+expected, Lenny, Libby, Jared and Mark were sitting out in the grass, so I cracked open a beer and had one with
+them until 6:00. I walked up to Olney and immediately had Adam pull up his car to me, so I hopped in and rode
+to his house on Carrier St. He said he had just started a new job at the custom E-bike shop. I walked down to
+the park, sat against a tree and finished my beer.
+
+We worked on Walkin' Boots and some Fleetwood song. Fursty was there for a bit. I walked back up to the Brew
+Pump, but they had never opened at all, so I walked home, very much annoyed by the sight of Justin's passing
+van. I went to sleep very easily.
+
+	-X.XI-
+
+I had had dreams of needing some kind of surgery, being unable to say hello to Cait, having rehearsal with
+Kevin and Dulci at the Biltmore house and more. I woke at nine, made coffee upstairs and hopped in the car
+with Kevin. We went to Scott's house and were joined for the first time by Ryan Oslance, and ran through 14
+songs. Only 12 memos survived, but it was a very fun day. I was tired on the ride home. Kevin and I sat in
+a fair amount traffic. I got out at Brevard Rd., walked home, made a cup of coffee, chatted with Erica, 
+asked if I could borrow the truck, loaded it up and drove to Foundry Hotel.
+
+I parked, loaded in my rug and throne, ordered a burger but had to settle for a chicken sandwich. I loaded
+in the rest of my gear, ate the crumbly sandwich, finished setting up, ordered a beer, chatted with Dulci,
+played two sets feeling like my sticks were heavy and then drove to the Brew Pump where a fundraiser concert
+was wrapping up. Most beers were kicked, so I decided on a Jade-and-a-half. I walked home, smoked a bunch
+of weed, listened to all the memos, converted them and uploaded them to my web server.
+
+	-X.XII-
+
+I woke to the sound of Erica chatting with the guests, seemingly a lot about me. I stayed in my room until
+they were gone, and then walked to retrieve the truck. We needed to use a rock to park it where Erica had
+had it before lest it roll down the driveway. I made coffee, laid in bed, ate some ramen and then wrote in
+my journal.
 
 
 
