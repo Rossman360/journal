@@ -516,7 +516,7 @@ to sleep.
 I woke feeling unwell and made some ramen. I laid around looking at my phone and drinking juice until
 3PM when I made coffee and wrote in my journal.
 
-
+I took a bath, talked to Lucy on the phone, made my bed, ate more ramen and wrote in my journal some more.
 
 
 
