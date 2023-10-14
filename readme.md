@@ -484,6 +484,37 @@ they were gone, and then walked to retrieve the truck. We needed to use a rock t
 had it before lest it roll down the driveway. I made coffee, laid in bed, ate some ramen and then wrote in
 my journal.
 
+. . .
+
+Dulci picked me up and we went downtown to the Lazoom room for a private tour hosted by Scott with Two Ts.
+They did not want to go to Highland, so we did a very roundabout tour of downtown, went to New Belgium
+and then Wedge where we were joined by Jillian and her boyfriend, who bought me a second beer. I announced
+I was going to be a silly goose after the tour was done and went to Brew Pump where I ran into Lucy. We ate
+some food and then went to our separate homes. I was worried about being a drunk idiot so I went straight
+to bed.
+
+	-X.XIII-
+
+I woke around 1130, snuck out of the house and walked to BattleCat, where I saw Bridget Kearney. I could
+barely get any words out, but of course mentioned Scott. Once my heart stopped racing, I walked to
+Wall Street where Alex was playing some lovely music. I then went into Asheville Club, had a Guinness,
+walked to my bank and back to the club for a shot of espresso and another Guinness. I walked to Grey
+Eagle for a pee break and decided to have a beer outside just in case circumstance would lead to Bridget
+wanting to talk a little more. I guess that was a bit weird. I went down to Olde London Road, ordered a
+smash burger from Grant with fries, ate it, walked up the hill to Urban Orchard and sat next to Allison
+for a drink. Jaqueline was bartending. We watched a bit of The Craft.
+
+I walked to Fleetwood's where the bands were loading in and stayed there for probably six hours. I saw
+four bands, made some new friends, hung with Juan and Devin and drank probably six more Guinness. I
+walked to Country Club after that for two more beers where I had a slightly aggro hangout with George,
+Amy, Tawny, and the guy with the little dog on the rope. I asked Tawny for a ride home and she scoffed
+at me, so I walked home in the rain, watched a few  music videos including the HGTR Audiotree and went
+to sleep.
+
+	-X.XIV-
+
+I woke feeling unwell and made some ramen. I laid around looking at my phone and drinking juice until
+3PM when I made coffee and wrote in my journal.
 
 
 
