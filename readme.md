@@ -518,8 +518,36 @@ I woke feeling unwell and made some ramen. I laid around looking at my phone and
 
 I took a bath, talked to Lucy on the phone, made my bed, ate more ramen and wrote in my journal some more.
 
+. . .
 
+I eventually started to shake my blues away by watching a Dr. Dog concert. Lucy came over around 630 and
+got ready while chatting with Erica and me watching music videos. We drove to Botiwalla, but the line
+was way out the door, so we went downtown, parked in the garage, walked to Dilbar and ordered some
+delicious food. It took a while to come out, and I wasn't being my most conversational. We walked
+down to the Orange Peel and she offered to buy my ticket. I wasn't going to let her at first, but
+somehow Shopify managed to charge me $50 for my bill through PayPal, which fed into my bank account,
+so I took her up on the offer and started to feel like a real bad date.
 
+I bought her a drink and started to enjoy the show while thinking I was a piece of shit, but after
+she had gone to grab a second drink, she rubbed against me and said something funny, so I relaxed.
+TMOE had an incredible stage presence and a very dynamic way of talking to the crowd, constantly
+whispering or speaking in a low gravly voice when not screaming. His rythmic cadence was fascinating
+as well, just filling a bit of space between songs. When he played the three I knew, it transported
+me to being with Louise, and I realized more than ever, I need to be back on the road somehow.
+
+We heard some amazing karaoke coming from the Lazoom Room, and so popped in for a split second,
+then walked back to the garage. We got in a very minor argument about pedestrian right-of-way,
+and then I even told her the wrong way to drive home. We laughed though, listened to some music
+on my bed and kissed a little until it was time for her to drive to her house to meet her date
+who had been working at the Orange Peel. My blues were cured and I was glad to not be very drunk.
+I don't remember what I did before falling asleep, probably nothing.
+
+	-X.XV-
+
+I'd slept solidly through the night with dreams of rehearsing in a grocery store, waking only
+when the B&B guests left at some ungodly dark hour. I looked at my phone, consuming a lot of
+Palestine/Israel content and then, when I heard Erica coming upstairs to strip the bed, snuck
+down, made coffee, chatted with her, came back upstairs and wrote in my journal.
 
 
 
