@@ -556,49 +556,27 @@ thing happened where a ton of people gathered under the gazebo during our final 
 were playing very well and picking some good songs. I came home, smoked a bowl with Erica,
 made some ramen, got a message from Aren Fairyfingers on discord and wrote in my journal.
 
+. . .
 
+I ended up making a second bowl of ramen and definitely had a tummy ache while I slept.
 
+	-X.XVI-
 
+I woke and decided it was for sure a zen day. In no particular order, I've made three cups
+of coffee, done a load of laundry, wrote in my journal and watched some of Poro Rosso,
+scrolled and messaged on the dating apps, talked to Lucy, watched a really boring linux
+video, played Wordle, some chess against Charlie plus my daily puzzles and smoked weed.
+The cartoon watching has been done from the Macbook Air I haven't used in a long time,
+from bed, and something about that is very comforting. I would like to do another load
+of laundry, but I don't want to strip the bed.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+I spent way too long writing a script that would check how long this file is, subtract
+14 from that line number, and then open this file and take me to that line, so, in theory,
+as long as I don't change how many trailing lines are at the end of the journal, it should
+open to the right line every time. I think it's ultimately an imperfect idea because the
+trailing lines probably WILL change, but at least I'll be pretty close, and I think I
+had fun scripting. I know there is so much more I could do with Bash if I get my head
+wrapped around it again.
 
 
 
