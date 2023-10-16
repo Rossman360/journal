@@ -549,7 +549,12 @@ when the B&B guests left at some ungodly dark hour. I looked at my phone, consum
 Palestine/Israel content and then, when I heard Erica coming upstairs to strip the bed, snuck
 down, made coffee, chatted with her, came back upstairs and wrote in my journal.
 
-
+I watched some of a much better Dr. Dog live concert from their final tour. I made bologna
+ramen, put on nearly-winter clothes and caught a ride with Kevin to the Biltmore where we
+played four sets (about two-and-a-half with Fursty.) It was very cold, but an interesting
+thing happened where a ton of people gathered under the gazebo during our final set. We
+were playing very well and picking some good songs. I came home, smoked a bowl with Erica,
+made some ramen, got a message from Aren Fairyfingers on discord and wrote in my journal.
 
 
 
