@@ -613,7 +613,7 @@ walked toward Ingles after that and ran into Ryan at the marmer's farket. I put
 my hands over his eyes from behind and he said, "I literally have no idea who
 this is." How could he? We chatted for a sec, and then I walked across the street
 and bought beef ramen x6, pineapple slices, muscadine juice, arugula, butter  and
-bologna. I tried frying my bologna in butter and think I used a little too much
+bologna for $18.95. I tried frying my bologna in butter and think I used a little too much
 butter. I also tried cutting my pineapple slices down from three to two, which
 I think is a mistake when having a lot of greens. I ate that. It smelled a little
 funny, but tasted okay. Then I wrote in my journal.
