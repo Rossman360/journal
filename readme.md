@@ -578,7 +578,9 @@ trailing lines probably WILL change, but at least I'll be pretty close, and I th
 had fun scripting. I know there is so much more I could do with Bash if I get my head
 wrapped around it again.
 
-
+I told Erica about what I had done and ended up getting a lesson in Bash. All we really
+did was simplify the code and then move it to a separate file, my bin, where things
+can be coded into commands. Things are starting to make a little more sense now.
 
 
 
