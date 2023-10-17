@@ -601,6 +601,10 @@ a need to write is slowly surfacing in an organic way. It could just be because 
 stuck at home with no money and the weather was cold yesterday, but I am going to 
 follow my instinct.
 
+I decided a txt file was better for freewriting and left the journal as markdown.
+I changed the journal command to "scribe" and then created aliases such that the
+journal command "j" is now "scribe journal.md" and "fw" is "scribe freewrite.txt".
+I also made another cup of coffee.
 
 
 
