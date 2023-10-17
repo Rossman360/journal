@@ -582,6 +582,27 @@ I told Erica about what I had done and ended up getting a lesson in Bash. All we
 did was simplify the code and then move it to a separate file, my bin, where things
 can be coded into commands. Things are starting to make a little more sense now.
 
+. . .
+
+I watched Ginger and Rosa, mainly because of Elle Fanning, and thought it was a great
+film. I had to break it up into small chunks, but I actually finished, which is rare
+for me. I slept well after that.
+
+	-X.XVII-
+
+I woke, asked Sunny for money for her unused cellphone plan, and then called Google
+asking for an extension on my bill. The lady did a bit of scolding, but eventually
+offered me three whole extra days. Erica went somewhere in the truck without saying
+anything while I was on hold. I made coffee after that, did my Wordle, did some free-
+writing, made some more coffee and then wrote in my journal. I think I will change
+my journal folder into a writing folder, and then change readme.md into journal.md
+and freewrite.md. And I can add other projects into there if needed. It seems like
+a need to write is slowly surfacing in an organic way. It could just be because I'm
+stuck at home with no money and the weather was cold yesterday, but I am going to 
+follow my instinct.
+
+
+
 
 
 
