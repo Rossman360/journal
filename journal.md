@@ -618,9 +618,25 @@ butter. I also tried cutting my pineapple slices down from three to two, which
 I think is a mistake when having a lot of greens. I ate that. It smelled a little
 funny, but tasted okay. Then I wrote in my journal.
 
+I wrote an alias that makes a copy of my bashrc in my bin folder, and then turned
+that folder into a git repository. I opened HBO Max and saw that the Phillies game
+would be broadcast, so I tuned into that, but there was a half-hour left of pre-
+game, so I watched the first episode of the latest season of South Park. 
 
+. . .
 
+I watched the most of Phillies/D-Backs game, until the Phillies were about 8-0,
+and decided to turn it off. I think I mainly recited love mantras after that
+until I fell asleep.
 
+	-X.XVIII-
+
+I woke to the sound of Erica leaving the house, presumeably for coffee. I made
+an upstairs cup and drank it while contentedly looking at my phone. I started
+a huge load of laundry after that and then made a second cup downstairs and
+shot the breeze with Erica. We talked about temperature, small computers,
+Suzana, arrogance, tour, the Brew Pump, the metric system and chipmunks. I
+made a third coffee, came upstairs and wrote in my journal.
 
 
 
