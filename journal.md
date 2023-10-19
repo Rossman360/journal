@@ -638,6 +638,33 @@ shot the breeze with Erica. We talked about temperature, small computers,
 Suzana, arrogance, tour, the Brew Pump, the metric system and chipmunks. I
 made a third coffee, came upstairs and wrote in my journal.
 
+. . .
+
+I cooked noodles, made my bed, folded laundry, brushed my teeth, took a bath
+and walked up to the Brew Pump where I had two porters before walking down
+to Malvern Hills. I accidentally flirted with Lindsey for a bit while Courtney
+stood suspiciously, and then walked down to Kevin's house where we had a fun
+rehearsal in a slightly reorganized room. I walked up to the Brew Pump for one
+more gose, which was a good idea because I could hear Taylor raising hell
+on her porch as I walked down Brevard Rd. I smoked a bit with Erica and made
+two batches of buttery noodles before falling asleep.
+
+	-X.XIX-
+
+I woke at 930 and consumed way too much Israel/Palestine content. I got up 
+and made coffee around 1130, went upstairs and wrote in my journal.
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
