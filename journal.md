@@ -654,7 +654,37 @@ two batches of buttery noodles before falling asleep.
 I woke at 930 and consumed way too much Israel/Palestine content. I got up 
 and made coffee around 1130, went upstairs and wrote in my journal.
 
+. . .
 
+At 130, I walked down to Middlemont, met Max and had rehearsal with Tina,
+Ryan and Melissa. Ry and Mel were doing a lot of trading off on tunes so
+that one could brush up while the other tended to Max. It worked surprisingly
+well. I walked quickly up to the house, made a big lunch, put on some
+warmer clothes and got picked up by Dulci to go check out Josh Phillips'
+studio. We waited him from the agreed-upon time of 6:00 until 6:25 and
+decided to give up. He finally called when we were back in West Asheville
+and said he could be there in half an hour, so we went to Starbucks
+(my fifth coffee) and back to the studio by 7:00.
+
+He still wasn't there, but he told us how to get in and showed up looking
+wild, drinking a White Claw about a half hour later. The studio was
+slightly dingy without a ton of isolation, but the recording equipment
+was top notch and there were all kinds of keyboard instruments, so
+Dulci and I decided it would be better than recording at Drop of Sun.
+We hung out there until 8:30 and went home. I watched Erica fix a flute
+and then sat on my bed hoping that the Biltmore money would come through.
+I did that, picking my scalp until midnight, when I decided to get undressed.
+It was a slow, stubborn process of getting ready to sleep, but I eventually
+did it, naked in the darkness. I refused to be anything other than
+accepting of the fact that I had had five cups of coffee that day.
+
+	-X.XX-
+
+Slept til nearly noon, having all kinds of dreams. Dulci had paid me for
+Biltmore, so I transferred that to my bank and then sent Erica rent for
+the week. I went downstairs, made a cup, noticed it was raining, talked
+with Erica about woodpeckers, made a second cup, came upstairs and wrote
+in my journal.
 
 
 
