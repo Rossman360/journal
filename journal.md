@@ -686,16 +686,164 @@ the week. I went downstairs, made a cup, noticed it was raining, talked
 with Erica about woodpeckers, made a second cup, came upstairs and wrote
 in my journal.
 
+I took a bath, brushed my teeth, started getting dressed, took my drums
+out on the porch and scrolled on my phone. Cleaning Ryan came over and
+Erica gave me a nug of weed. I answered a phone call from a number that
+had been calling me for days, and it was a lady thanking me for my
+support to the republican party. I failed a couple Monkeytypes after
+that and wrote in my journal.
 
+. . .
 
+I rode with Dulci to the Mt. Mitchell golf club in crazy weather. I
+loaded in my rug and throne, ordered a burger, finished setting up
+my drums and ate my burger in the corner of the bar overlooking the
+golf course. Dulci joined me and we talked about Palestine for a minute.
+We went to the car and smoked a bowl, and then hurried back inside
+because the wind was getting so crazy. I sat back in my corner and
+drank my beer until I guessed that Kevin was set up. We played a
+challenging but fun set, most of it to three enthusiastic  people.
 
+We loaded out and I rode home with Dulci, chatting the whole way,
+even spilling the tea on some people. I went inside, smoked a bowl
+in the basement with Erica and decided it was time to lay down. I
+think I laid awake in bed for a long time.
 
+	-X.XXI-
 
+I had had many crazy dreams and started to wake up around 8AM.
+Actually, I fell back asleep until I heard Erica checking on me and
+leaving the house around noon. I laid in bed mostly scrolling on
+my phone until 2:00, when I decided to write in my journal.
 
+. . .
 
+I walked up to the Brew Pump and passed our B&B guest on the way.
+I had two porters and some Saag Paneer from Dilbar while texting
+Aurora about a possible guestlist spot for the Rocky Horror Music
+Show at Asheville Music Hall. She said, "I only had one and I gave
+it to Frank. :P but please come anyway?" I said, "When you ask
+like that, what choice do I have?"
 
+I walked home, put on more clothes, hit the bowl and walked downtown
+very quickly. Dennis, Sierra, Squid, Reese and Nick were hanging
+out outside The Asheville Club. Dustin excitedly asked if I wanted
+a pint of Guinness and a shot of espresso, so I couldn't decline.
+I drank those, walked around the corner to the Music Hall and really
+enjoyed the opening band, the fake wedding cover band. They played
+She Came In Through The Bathroom Window, Ophelia, Wild Night and
+a couple others. I really want to be in that band.
 
+The show was great, aside from Steph being mostly unable to act.
+I saw some amazing jazz funk down in One Stop, smoked a bowl on
+the sidewalk with a stranger and then called Aurora asking for a
+ride home. She instead took me to a hangout at Kevin's house for
+his birthday. He showed me some sort of N64 Smash Brothers mod,
+which I protested. I went to Country Club after that, but it was
+slow and boring, so I drunkenly had a Pernicious at the Alley Cat
+while watching amazing karaoke. I walked home, watched music videos
+for an hour-and-a-half and fell asleep.
 
+	-X.XXII-
+
+I was reluctant to get up, but had enough time to drink two cups of
+coffee, get dressed, unload my drums, play Wordle, etc. Fursty and
+I rode to Starbucks, then out to Rare Bird Farm where we had a very
+fun Tina & Her Pony set inside a great sounding barn followed by a
+super chill outhouse porch sit led by me. We took the windy drive
+home and I laid in the darkness for a while before deciding to order
+Dominos and write in my journal.
+
+. . .
+
+I wanted to watch baseball, but it was not on, so I watched three or
+four episodes of South Park instead before falling fast asleep.
+
+	-X.XXIII-
+
+I was awoken by the faint sound of Erica desperately asking if I was
+home. I said I was, and exited my room. She was saying she felt like
+a bear coming out of her cave. I made a cup of coffee and was just
+assaulted by her talking about whatever, following along with my
+Wordle game, etc. I used the restroom, scrolled on my phone and 
+wrote in my journal.
+
+. . .
+
+I walked to Ingles, bought some blackberries and a banana and ate
+them on the way to Battle Cat. I drank an Americano in the sun
+and decided to walk downtown to the bank. I went to the Asheville
+Club after that and met up with Aren Blake. We had two beers and
+then went to check out drum machines at his house. We shared an
+IPA there and then went to the West Side after picking up a sixer
+of Mountain Water. We drank and checked out keyboards, and I
+eventually retired to my room for music video hour.
+
+	-X.XXIV-
+
+I woke, looked at my phone, made coffee and wrote in my journal.
+
+. . .
+
+At 2:50, I walked up to the Brew Pump, but the Mexican truck was
+not yet open, so I went over to UJ and had a burger with tots and
+a Coke. I slipped back over to the Pump for two beers and then
+walked down to rehearsal. Charlie shared with me a Flanders red
+from Zilacoah while we ran through Take It Easy, Donna, Don't
+Have To Try, Walk on By, Perhaps, Get Out Of My Head, More Than
+You Can Take plus maybe more.
+
+I walked back up to the Pump, had two more porters, walked home
+and soon went to bed.
+
+	-X.XXV-
+
+I slept til almost 1PM, dreaming about all kinds of fighter jets
+and camps and stuff. I made a coffee, drank one with Erica,
+made another, came upstairs, sat on the couch and checked to
+see if anything had happened on the internet. After that, I
+made my bed, tidied my room and wrote in my journal.
+
+. . .
+
+I drove the truck downtown at 5:15, loaded in my drums and ate
+some steak skewers. We played a fun set and were joined by
+Aren Blake and Deacon | Dale. I took Aren to the Brew Pump for
+one after that, and upon him realizing Ubers were $23, I gave
+him a ride home, drank a PBR and met his girlfriend. I went
+to the Country Club after that, had two margarita sours and
+went home to listen to some tunes and sleep.
+
+	-X.XXVI-
+
+I woke after noon feeling less tired than the day before, but 
+very thirsty. I drank three cups of coffee in the basement
+with Erica and then made some ramen with bologna, arugula and
+red bell pepper. After that, I wrote in my journal.
+
+. . .
+
+I ate a weed gummy, finished season 26 of South Park, rewatched 
+Six Days to Air for the first time since it came out and fell asleep
+
+	-X.XXVII-
+
+I slept til nearly noon, woke, drank a cup of coffee with Erica,
+came upstairs, brushed my hair, drank another cup of coffee, 
+took a bath, trimmed my mustache area, cut my toenails, made a
+lunch of undercooked noodles with collard greens and bologna,
+ate a weed gummy, watched season 25 of South Park, ate another
+gummy, watched season 24 (The Pandemic Special), ate another gummy,
+watched The Vaccination special, ate another gummy and watched all
+10 episodes of Season 23 and fell asleep.
+
+	-X.XXVIII-
+
+I woke to a beautiful day, drank a cup of coffee in the hammock,
+went to Ingles, bought a pack of ramen and a can of pineapple
+slices, saw Brody, came home, had another cup of coffee and 
+smoked a bowl with Erica, made lunch (soy ramen, bologna, pineapple,
+collard greens) and wrote in my journal.
 
 
 
