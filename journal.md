@@ -834,7 +834,7 @@ took a bath, trimmed my mustache area, cut my toenails, made a
 lunch of undercooked noodles with collard greens and bologna,
 ate a weed gummy, watched season 25 of South Park, ate another
 gummy, watched season 24 (The Pandemic Special), ate another gummy,
-watched The Vaccination special, ate another gummy and watched all
+watched The Vaccination Special, ate another gummy,  watched all
 10 episodes of Season 23 and fell asleep.
 
 	-X.XXVIII-
