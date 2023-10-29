@@ -845,6 +845,36 @@ slices, saw Brody, came home, had another cup of coffee and
 smoked a bowl with Erica, made lunch (soy ramen, bologna, pineapple,
 collard greens) and wrote in my journal.
 
+. . .
+
+Dulci picked me up and we rode to the Biltmore, where we were joined
+by Alyse and new puppy Charli. We had a very easy day of music with
+beautiful weather. I took my $17 in tips to Ingles for two bags of
+ramen, had three porters at the Brew Pump, smoked a bowl with Erica
+and then watched the first three episodes from Season 22 of South
+Park and fell asleep.
+
+	-X.XXIX-
+
+I woke around 7AM, did Wordle, scrolled memes and fell back asleep
+to an intense Cait dream. I woke up again around 1030, texted Ryan
+asking about a ride, made a cup of coffee and wrote in my journal.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
