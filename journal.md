@@ -860,7 +860,52 @@ I woke around 7AM, did Wordle, scrolled memes and fell back asleep
 to an intense Cait dream. I woke up again around 1030, texted Ryan
 asking about a ride, made a cup of coffee and wrote in my journal.
 
+. . .
 
+Ryan and I rode to Sierra Nevada, where we played a fun and silly
+set. Lots of friends were there including Dad, Daniel, Molly, Finn,
+Jenny(?), Ryan O'Keef, Alish, Melissa, Max, Megan & Miguel and
+little Charli. I felt a little wonky when I got home and so I
+rested a while. I really wanted to go to a new bar, especially
+after Facebook served me a video of Anthony Bordain walking around
+NYC going to his favorite spots. I scrolled on Maps for a while
+and actually realized there was a brand new place with the perfect
+vibe right around the corner.
+
+The Low Down is the closest bar to me, in fact. I had a Left Hand
+Nitro Stout and went over to the Country Club for a porter and a
+to-go Guinness. I forgot to mention I had shared some of an
+Outsider Darkcider with Erica, courtesy of Charlie. I just laid
+in bed and felt life for a while.
+
+	-x.xxx-
+
+I woke and decided after debating throughout the night that it was
+walking day. Battle Cat was closed, so I went straight to the
+Asheville Club where Sal was bitching with the GM of Tupelo Honey.
+I drank a shot of espresso, two Guinness and started walking back
+west. I went to Wedge for an AOB stout and realized very suddenly
+that I wanted to be Kenny for Halloween, so I texted everybody I
+knew asking if they had an orange pair of pants.
+
+I walked up the hill, had a halfpour of a sour from Cellarest,
+almost passed by The Walk, but changed my mind, walked inside and
+sat next to Will, who bought me a Guinness. He introduced me to 
+his friend Albert, who did indeed have an orange pair of pants at
+his house and was walking home presently. I joined him and bought
+him a beer at the Brew Pump before walking to his house. He had a
+very old very protective chocolate lab who did befriend me until
+I stood up to leave.
+
+I started walking east in a spooky mist, rather drunkenly, I might
+add. I crashed into the Brew Pump and said who knows what, didn't
+even buy a beer. I walked home just before nightfall, made Erica
+watch some of the Sierra Nevada set, and then made a very good
+meal: garbonzo beans w/ tomato and avacado. It was hot as shit
+though and I definitely burnt most of my mouth. I didn't have
+the easiest time falling asleep after that, but I was very content
+to be in my bed. I thought about many times when that wasn't so
+easy to come by.
 
 
 
