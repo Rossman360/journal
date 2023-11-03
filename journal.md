@@ -907,7 +907,70 @@ the easiest time falling asleep after that, but I was very content
 to be in my bed. I thought about many times when that wasn't so
 easy to come by.
 
+	-X.XXXI-
 
+I lazed in bed all morning, somewhat reluctant thinking about all
+the partying to be done. At around 4:00, I got in costume and
+walked to the Brew Pump. I realized on the walk there that the
+hankie I was using to protect my nose could be stuffed into my
+mouth, rendering my speech unintelligable. I ate a burrito while
+the party was percolating and started doing long laps once it was
+packed.
+
+The Homegrown crew arrived right after things had shut down, and
+I was in just the right state to ask if I could tag along with
+them. I even said to Justin, "You can't be mad at *me* for giving
+you a thumbs down right? We're, good, right?" He said sure and I
+gave him a hug. We walked to Country Club, but it was too packed,
+so we walked to Cait's house for supplies and cars, then drove to
+Dane's where he built a fire and invited more people over. I had
+found weed, a one-hitter and a lighter in the pocket of my Carhartt
+vest earlier and took that to mean I would run into Cait, so I was
+stoked that I could return her one-hitter.
+
+The party eventually dispersed and Lucy agreed that I could come
+hang out with her. We drank Four Roses until I took a nap on her
+bare bed.
+
+	-XI.I-
+
+I was woken up to an alcoholic Topo-Chico and a breakfast of 
+bread and eggs. We drank coffee, went to Ingles for beer,
+champagne, pizza, coffee and ginger, and then hung out in the
+yard listening to music and drinking as usual. I was a little
+surprised when she said it was time to take me home. I think
+I had known that was happening, but let it slip my drunken mind.
+
+I had her drop me off at the Brew Pump instead of home. I paid
+for some beers (three) that I had walked out on the night before,
+drank at least two more (one courtesty of Will) and bought a new
+T-shirt. I do not remember walking home at all.
+
+	-XI.II-
+
+Oof: pain, regret, pitty. I made a pot of coffee with random
+stuff from upstairs and drank it despite the pain in my stomache.
+Around 2:00, I packed my drums into Erica's truck, drove them
+down to Kevin's, took the truck home, walked to the Market for
+two plums, then walked down to Kevin's and sat in the yard
+waiting for him to get done with rehearsal at Scott's. We drove
+to Saluda, loaded in, sound checked, ordered food and were
+escorted to the new apartment green room where I ate bolognase
+and laid quietly knowing full well my mom was in the restaurant.
+
+We walked down, said hello, played a fun 90-minute set, said
+goodbye, packed up, loaded out and drove home. I can't believe
+I was able to muster any joy at all, especially when my mom, as
+usual, was looking like the grumpiest/most bored audience member.
+I smoked a bowl with Erica and fell asleep to dream lots of dreams.
+
+	-XI.III-
+
+I don't remember much of said dreams, but I was so happy to be laying
+in bed at 9AM with no hangover. Around 10AM, I got up, got dressed
+and walked up to the market for coffee, a can of soup, Topo-Chico and 
+a plum. I walked home, made coffee, drank a cup with Erica, made 
+another, came upstairs and wrote in my journal.
 
 
 
