@@ -970,7 +970,8 @@ I don't remember much of said dreams, but I was so happy to be laying
 in bed at 9AM with no hangover. Around 10AM, I got up, got dressed
 and walked up to the market for coffee, a can of soup, Topo-Chico and 
 a plum. I walked home, made coffee, drank a cup with Erica, made 
-another, came upstairs and wrote in my journal.
+another, came upstairs,  wrote in my journal and watched the new
+Beatles music video.
 
 
 
