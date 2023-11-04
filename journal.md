@@ -1004,7 +1004,9 @@ I was very happy to be cozy in my bed, once again not hungover.
 I went downstairs, made a cup of coffee, drank it with Erica,
 made a second, came upstairs and wrote in my journal.
 
-
+I took a bath, got dressed, walked to Ingles, bought ramen, 
+pineapple, cubed ham and cuties, walked home, sat on the couch
+a while, made lunch and wrote in my journal again.
 
 
 
