@@ -970,10 +970,39 @@ I don't remember much of said dreams, but I was so happy to be laying
 in bed at 9AM with no hangover. Around 10AM, I got up, got dressed
 and walked up to the market for coffee, a can of soup, Topo-Chico and 
 a plum. I walked home, made coffee, drank a cup with Erica, made 
-another, came upstairs,  wrote in my journal and watched the new
+another, came upstairs, wrote in my journal and watched the new
 Beatles music video.
 
+. . .
 
+I made my bed, cleaned my room, heated up the soup, layered up and
+went to Morris, to Dan's nextdoor neighbor, Crawford's house for
+a quick rehearsal of tunes. Crawford offered me some tablas so I
+sat on the floor and played those. I walked home at 3:35 and
+arrived at the same time as Fursty. We loaded up my drums and
+drove to Downtown Mars Hill where we played a three-hour gig
+with beers from the cool little theater before the set and on
+our break.
+
+We drove back to the west side after that and each had a porter
+and a burger at the Malvern, which was very nostalgic. He drove
+me home and helped me load in my drums. I smoked some weed with
+Erica in the basement and then came upstairs to get out of my
+winter clothes while she got into hers for a trip to either UJ
+or Pueblos. After much talk about South Park, I found I wanted
+to do nothing. I laid in bed and alternated between closing my
+eyes and looking at spiritual content. I never quite made it
+into a full-on meditation; there was so much life to think about.
+That's exactly when meditation should be used, but I ended up
+sitting in bewilderment until I fell asleep.
+
+	-XI.IV-
+
+I awoke around 9 after many intense dreams about a submarine/
+cruise ship making constant trips and even getting flooded.
+I was very happy to be cozy in my bed, once again not hungover.
+I went downstairs, made a cup of coffee, drank it with Erica,
+made a second, came upstairs and wrote in my journal.
 
 
 
