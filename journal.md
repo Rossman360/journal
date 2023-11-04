@@ -981,8 +981,8 @@ a quick rehearsal of tunes. Crawford offered me some tablas so I
 sat on the floor and played those. I walked home at 3:35 and
 arrived at the same time as Fursty. We loaded up my drums and
 drove to Downtown Mars Hill where we played a three-hour gig
-with beers from the cool little theater before the set and on
-our break.
+with Jackson and had beers from the cool little theater before 
+the set and on our break.
 
 We drove back to the west side after that and each had a porter
 and a burger at the Malvern, which was very nostalgic. He drove
