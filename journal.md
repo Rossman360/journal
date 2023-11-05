@@ -1008,7 +1008,51 @@ I took a bath, got dressed, walked to Ingles, bought ramen,
 pineapple, cubed ham and cuties, walked home, sat on the couch
 a while, made lunch and wrote in my journal again.
 
+. . .
 
+Crawford picked me up around 245 and we drove to Hickory Nut
+Gap to play with Dan. The weather was beautiful and the set
+was a surprising success. We were holding on for dear life and
+people were into it. We checked out the piglets afterwards
+with Crawford's girlfriend Mema and then drove back to the 
+west side. I really only had time to load in my drums and put
+on more layers before Charlie wanted to have a drink.
+
+I walked up to the Low Down, but it was packed, so we walked to
+the Country Club instead and had one at the bar next to a very
+drunk Will, who said my recent appearance at the Brew Pump was
+the drunkest he'd ever seen me. We rode down to the Double
+Crown and had a very fun time amongst most of the people I
+know: The Hypos, Dulci, Tawny, Alyse, Leann, Clay White, Steve,
+and even Maryclair, who I had met the day before in Mars Hill.
+She came up to me in the crowded bar and said, "I thought I'd
+see you at this show," and kept going. Charlie knew I was in
+love.
+
+I behaved well for the most part, and even was given Maryclair's
+number and glass of wine at the end of the night. I started to 
+get a little drunk and rambly at that point. I went to the
+Country Club for one more and bought a to-go Guinness. I walked
+home, surprised that Erica was still awake. I shared my Guinness
+with her and smoked a bowl in the basement, but started to realize
+I was getting drunk and was afraid of becoming annoying. I went
+upstairs, made and ate ramen, laid in bed excitedly for a while
+and eventually decided to make another bowl of noodles before
+falling asleep.
+
+	-XI.V-
+
+I woke around 7 only slightly hungover. I was happy to be in
+bed but could not go back to sleep. I ate a few clementines
+and went downstairs to make coffee once I heard Erica was awake.
+I drank two cups down there with her and sat in the hammock. It
+was a surprisingly warm day. I texted Maryclair saying it was
+nice to see her and I would love to do it on purpose. I went
+upstairs and laid in bed for a long time. She eventually texted
+back and said, "Yeah let's hang!" I went downstairs for another
+coffee & hammock and was surprised when I came back upstairs
+that she had suggested a stroll. I brushed my teeth and wrote
+in my journal.
 
 
 
