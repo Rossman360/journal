@@ -1054,6 +1054,21 @@ coffee & hammock and was surprised when I came back upstairs
 that she had suggested a stroll. I brushed my teeth and wrote
 in my journal.
 
+. . .
+
+At 4:00, I walked up to The Odd, but they were having a private
+event, so I walked down to The Malvern and had a burger+Coke
+with way too many french fries. I went to rehearsal at Middlemont
+after that, where we ran through songs as a Menage, Moon & You
+superband: Natch Woman, Rat King, Harvest Moon, Don't Have Time,
+Valerie and Dreams. Ryan gave me a ride home after that, and I
+contentedly laid in bed, scrolled on my phone and ate clementines.
+
+	-XI.VI-
+
+I woke at 9:30, went downstairs, made coffee, drank a cup with
+Erica, made another, came upstairs, played chess, scrolled on
+my phone and wrote in my journal.
 
 
 
