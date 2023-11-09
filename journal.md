@@ -1070,7 +1070,54 @@ I woke at 9:30, went downstairs, made coffee, drank a cup with
 Erica, made another, came upstairs, played chess, scrolled on
 my phone and wrote in my journal.
 
+. . . 
 
+I walked to Aldi, bought some turkey, mini bagels, plums, citrus,
+and came back home, made some lunch, two bagel sandwiches. I walked
+down to Middlemont at 5:30 and rehearsed for a while with Ryan,
+Melissa and Max. I walked up to the Brew Pump where Sunny was
+having her birthday/another going away party. It was kinda sleezy
+and Leo was annoying the shit out of me. I had one beer and went
+home to bed.
+
+	-XI.VII-
+
+I woke and walked though the Brother Hug Trail to Dulci's Airbnb
+where she was making breakfast with Ethan. Kevin showed up and
+we eventually went to Sidehouse studios, where Booty Band was
+wrapping up a rehearsal. We loaded in gear, set up, got tones
+and recorded drums/bass on Take It Easy, then More Than You Can Take.
+We ate pizza between songs and called it quits around 9:00. I was
+dead tired, came home and went to bed.
+
+	-XI.VIII-
+
+Woke and walked to Dulci's Airbnb, had coffee with she and Ethan,
+rode to the studio and tracked drums for Get Out Of My Head. We
+did a little percussion, and then, when Kevin showed up, tracked
+bass. Ethan started tracking acoustic guitar on everything after
+that. Charlie showed up and anxiously listened for a while. We
+were also joined by Melissa and Max. When Fursty showed up around
+230, we tracked guitar on Out of My Head. Dan soon had to leave,
+so we set up for vocals/keyboards. We recorded Dulci vocals for
+all three tunes, switched back to electric guitar, and then
+recorded Wurlitzer and Organ on everything.
+
+We wrapped around 1:30 in the morning. Kev dropped me off at the
+Country Club at 1:55, where I had a Dominga and a to-go Guinness.
+I walked home, drank my beer in bed and looked at my phone before
+falling fast asleep.
+
+	-XI.IX-
+
+I woke at nine, made a cup of coffee  and walked down to 
+Middlemont. It was already a gorgeous day, and I stripped down 
+to just my T-shirt. I helped Ryan move drums from the Fit to
+the van, walked up to Izzy's, and then went back home for a bath
+and a hair washing. I sat in the backyard and brushed/dried my
+hair, drank a third cup of coffee, went upstairs, picked out my
+stage outfit and wrote in my journal.
+Ryan move drums
 
 
 
