@@ -1117,8 +1117,78 @@ the van, walked up to Izzy's, and then went back home for a bath
 and a hair washing. I sat in the backyard and brushed/dried my
 hair, drank a third cup of coffee, went upstairs, picked out my
 stage outfit and wrote in my journal.
-Ryan move drums
 
+. . .
+
+At 1:30, I walked down to Middlemont where we had a very lazy
+rehearsal with Tina. We played four songs with Max in the middle.
+I laid in the hammock for a while after that. At 4, Ryan's parents
+showed up to take care of Max while Ryan, Melissa and I got in the
+van. I drove us to the Purple Onion where we loaded in and sound
+checked. Ryan and I went to the green room for a while, and then
+ate our fish on the patio.
+
+I sat at the back of the room while Menage played some not-very-
+feminist songs, played a fun set with The Moon And You, and then
+a combined four or five tunes. We loaded the van again and went
+home. I was tired.
+
+	-XI.X-
+
+Ryan picked me up at 9AM after thinking he could quickly call in
+a biscuit or two from Sunny Point. We waited downtown by Aren's
+house for Melissa, who picked us up with shots of espresso and a
+biscuit. Ryan drove us frantically down to WNCW with Max in the
+back, and we played Sound and Color, Soul Child, Golden Highway
++ Beautiful Mess as Tina and Her Pony. Kim was there to watch
+Max, had ridden down with Tina and called me her Walmart Greeter.
+
+Ryan rode with Tina and his mom to do a whole bunch of stuff
+while I drove Melissa, Max and I in the van. We got 20 miles 
+away before I realized that I had left my raincoat with my jar
+of weed in the studio, so I turned around and grabbed it while
+Melissa and Max napped. I dropped myself off at B&B Pharmacy,
+peed at The Walk, got an Americano from Battle Cat and walked
+to Asheville Club where Sierra cutely gave me a Guinness.
+
+I walked to Itto, ate some ramen, then walked down to Lazoom
+Room where Dulci was sitting in her car. We smoked a bowl and
+talked about our days until Melissa arrived, about the same 
+time as the bus. We loaded our gear onboard and rode around
+with Vadid and Matt. Highland was having Cold Mountain, so
+instead of going there, we went to New Origin, who served
+Vadid and I some very tasty seltzers. I chatted with Cam at
+New Belgium while drinking a La Folie, and then drank a stout
+at Wedge with Vadid and Matt.
+
+We unloaded the bus and I decided to walk up to Imperial, where
+Mad Mike was spinning to meet Cam. We hung out on the street for
+a while with Keon and Cam's girlfriend, and then went to Double
+Crown under my encouragement. I had had two sours served to me
+by Gatlin inside and was ready to be back west. Double Crown
+was out of Guinness, so I drank a Gin and Tonic and then walked
+to Tastee Diner for that Guinness and a talk with the bartender,
+about Ryan Lassiter mostly.
+
+I walked to Country Club for one last Dominga and was sat next
+to by Taylor. I forgot to mention she had messaged me at 7:15AM
+saying, "Wyd," and then, "Do you wanna fuck or not? It's now or
+Never." Anyway, she forgave me for being weird and said we could
+be friends. She was heading down to Double Crown. I walked home,
+listened to the three Dulci mixes, and then watched a little
+YouTube. I also made some ramen.
+
+	-XI.XI-
+
+Since the Tina Story Parlor show had been cancelled, I woke with
+nothing to do, but it was cold. I was out of fruit and slightly
+hungover. After Erica had left to teach her tango class, I
+remembered I was owed a free pizza from Dominos, and it occoured
+to me I could get a two-litre of Sprite with that, so I did, an
+Italian sausage and pineapple pizza, the worst cut I've ever seen
+in my life. I ate some of that, drank sprite, made coffee, smoked
+weed and scrolled on my phone, mostly watching Pomplamoose videos,
+and then wrote in my journal.
 
 
 
