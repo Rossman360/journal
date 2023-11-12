@@ -1190,6 +1190,19 @@ in my life. I ate some of that, drank sprite, made coffee, smoked
 weed and scrolled on my phone, mostly watching Pomplamoose videos,
 and then wrote in my journal.
 
+. . . 
+
+I woke at 9, went down to Middlemont to collect my drums, ordered
+an Americano from Izzy's, came home, drank my coffee with Erica,
+made another, listened to some flute music, came upstairs and
+wrote in my journal.
+
+
+
+
+
+
+
 
 
 
