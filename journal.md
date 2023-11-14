@@ -1190,12 +1190,56 @@ in my life. I ate some of that, drank sprite, made coffee, smoked
 weed and scrolled on my phone, mostly watching Pomplamoose videos,
 and then wrote in my journal.
 
-. . . 
+	-XI.XII-
 
 I woke at 9, went down to Middlemont to collect my drums, ordered
 an Americano from Izzy's, came home, drank my coffee with Erica,
 made another, listened to some flute music, came upstairs and
 wrote in my journal.
+
+. . . 
+
+Bridger picked me up after noon, and we rode to the country,
+Miranda's house, where we recorded drums on a song of hers.
+Her land, her dog, her cats, her presence, and especially her
+songs were so beautiful. I rode home with Bridger, got two
+porters and some Indian food at the Brew Pump, came home, saw
+a post on Instagram about World of Warcraft Classic Hardcore,
+installed it, was playing within minutes, created a druid,
+got stoned, ran around with someone randomly up to level
+7, died and went to bed.
+
+	-XI.XIII-
+
+I woke at 8:30, made coffee and played some WoW. I made another
+coffee and played until noon, reaching level six. I walked downtown, went to
+the bank, had a Guinness at the Asheville Club and walked back
+to the west side. Lucy called me while I was outside of Battle
+Cat. I had just told her about Scott confirming our December 1st
+show at Eulogy. Apparently Cait had been too hungover to attend
+Chuck's birthday even though she was supposed to bring the cake,
+and everyone was upset because they really wanted to invite me
+anyway.
+
+I forgot to mention how Taylor had been circling me with her car
+in the church parking lot, drunkenly hinting that she wanted to
+hang out again. Anyway, after Battle Cat, I went into Ingles,
+bought soy sauce, grape juice, pineapple slices, clementines
+and arugala. I went home and Erica said, "I didn't expect you
+back so soon." I said, "I'm too excited to play Warcraft," which
+is what I did. I played from 3:30 til midnight, reaching level 12.
+I laid in bed to see if I was sleepy and only had the strength
+to purchase my new talents, Regrowth and the bear roar that
+reduces nearby stats.
+
+	-XI.XIV-
+
+I woke, went downstairs and made a coffee. After drinking half
+a cup, I got excited to play WoW, so I went upstairs and realized
+it is a maintenance day. I made another cup, cleaned off my desk,
+booted up the iMac and wrote in my journal. I would really like
+to play WoW on said iMac, so I'm wondering if running OS X off a
+speedy USB stick would get the job done.
 
 
 
