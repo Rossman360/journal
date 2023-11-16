@@ -1241,7 +1241,43 @@ booted up the iMac and wrote in my journal. I would really like
 to play WoW on said iMac, so I'm wondering if running OS X off a
 speedy USB stick would get the job done.
 
+. . .
 
+I had a keyboard order to fulfill, and when I tried installing the
+drivers for my label printer, I corrupted the whole operating system,
+so I walked to the post office and mailed it the old fashoned way. I
+went to Aldi after that and bought plums, clementines, turkey and ramen.
+I walked home and played WoW until 6:30, when Charlie and Dulci came over
+to discuss/rehearse. I played WoW until 2AM after that.
+
+	-XI.XV-
+
+ I woke and played WoW until I heard a cough from Erica, and then went
+ downstairs to make coffee. I played for most of the day and excitedly
+ went to Ingles at one point. I resumed playing after that until Brody
+ came over and started futzing with the electricity. After he left, I
+ got about 2 more hours in, hit level 19 and went to sleep at 2AM.
+
+ 	-XI.XVI-
+
+  I woke, made coffee, drank it downstairs, made another, came upstairs
+  and did a few quests, including starting my aquatic quest three levels
+  too late. I was snooping around for half of the Silverpine medallion when
+  I found an island full of Merlocks. I noticed they were the same level as
+  me, so I figured I would kill some for fun. I got ganked on the first pull,
+  used a potion and barely survived. When I noticed there was an herb nearby,
+  I got extra greedy. I decided I would hang on the island and clear out
+  murlocks for a while, but foolishly started my second pull before my potion
+  cooldown was up. I got ganked again, and, with nowhere to run, died rather
+  unavoidably. Even if I had had a potion available, I don't think I would have
+  been able to swim out of range or fight them both off.
+
+  I was surprisingly accepting, perhaps even less annoyed than if I had died on
+  a normal server. I sat in the hammock, took a bath, sat in the hammock again,
+  reflected and came upstairs to write in my journal. I'm going to start another
+  Tauren druid and I'm excited about it. I will probably change up my talent tree
+  but maintain the same professions, and think extra hard about my keybindings
+  and how to best use QMK.
 
 
 
