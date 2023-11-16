@@ -1270,7 +1270,7 @@ to discuss/rehearse. I played WoW until 2AM after that.
   murlocks for a while, but foolishly started my second pull before my potion
   cooldown was up. I got ganked again, and, with nowhere to run, died rather
   unavoidably. Even if I had had a potion available, I don't think I would have
-  been able to swim out of range or fight them both off.
+  been able to swim out of range or fight them both off. I was level 19.
 
   I was surprisingly accepting, perhaps even less annoyed than if I had died on
   a normal server. I sat in the hammock, took a bath, sat in the hammock again,
