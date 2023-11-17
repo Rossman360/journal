@@ -1279,8 +1279,22 @@ to discuss/rehearse. I played WoW until 2AM after that.
   but maintain the same professions, and think extra hard about my keybindings
   and how to best use QMK.
 
+. . .
 
+I started another druid and got to level 4 before Brody arrived and started futzing
+again. At 3PM, I walked down to Kevin's house. We hopped in the car and drove to
+Reflections on the Pond, right by Dulci's house in Canton. We played a very swanky
+fundraiser for KARE that was surprisingly bearable. I was wearing my fake glasses I
+had found from Charleston while looking for a black tie. We stopped by Dulci's house
+after the gig to pick up some brown bags and then drove back to West Asheville where
+I smoked weed with Erica and played WoW until I was level 9, going to bed around 2:30.
 
+	-XI.XVII-
+
+ I woke at 830, drank some juice, went downstairs, made a coffee, drank it with Erica,
+ made another, came upstairs and played WoW for about half an hour before the server
+ shut down for maintenance. I managed to make a bank alt right before that happened and
+ then wrote in my journal.
 
 
 
