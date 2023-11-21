@@ -1296,6 +1296,38 @@ I smoked weed with Erica and played WoW until I was level 9, going to bed around
  shut down for maintenance. I managed to make a bank alt right before that happened and
  then wrote in my journal.
 
+ . . .
+
+ I went to Kev's at 3:30 and recorded percussion on More Than You Can Take, Take It Easy
+ and Get Out of My Head. I chatted with Dulci as she arrived, and then went home to WoW.
+
+ 	-XI.XVIII-
+
+  I woke up early, played WoW, walked down to Middlemont at 11 for TMAY+Dulci rehearsal
+  and then walked to Aldi for plums, citrus, bananas and turkey. I played WoW from 4 til
+  bed.
+
+  	-XI.XIX-
+
+   I woke up early and played WoW until I hit level 20 right before Ryan, Melissa and Max
+   picked me up. Ryan drove us half off the road to Sierra Nevada, almost missing every
+   exit. We played three mid sets there with lots of family present and then skiddaddled
+   around 6PM. I drank two NA beers and drove us home, at which point I played WoW, from
+   7 til bed.
+
+   	-XI.XX-
+
+    I slept in a little later than usual, drank two cups of coffee and then started questing.
+    At 2:20, I drove up to Ingles for peas, arugula, citrus and yogurt for Erica. I came home,
+    got back to WoW, and made it to level 26 before going to bed at 1AM. I had almost died at
+    least twice.
+
+    	-XI.XXI-
+
+     I woke up around 10AM to a rainy day, went downstairs, made two cup of coffee, came upstairs,
+     sat down to play some WoW and realized they were having server maintenance, so I wrote in my
+     journal while drinking my second cup of coffee. 
+
 
 
 
