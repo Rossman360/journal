@@ -1328,7 +1328,20 @@ I woke up around 10AM to a rainy day, went downstairs, made two cup of coffee, c
 sat down to play some WoW and realized they were having server maintenance, so I wrote in my
 journal while drinking my second cup of coffee. 
 
+. . .
 
+I drove to Tina practice and then straight home to play WoW all night, mostly grinding, and
+reached level 28 before deciding to go to bed at midnight.
+
+	-XI.XXII-
+
+I woke early, went downstairs and made a cup of coffee, drank it with Erica, made a second
+and came upstairs to grind some more. I reached level 29, found some new quests in Thousand
+Needles, and then died trying to escape some water elementals. I decided to rearrange all my
+desks after that, moving the iMac back over to the big table, and setting up a WoW station
+on the glass desk with my old monitor. I played a little bit of a new druid once everything
+was all set up, made it to level six and decided to take a break to set up SSH keys and write
+in my journal.
 
 
 
